@@ -1,5 +1,5 @@
 # About Diana
-Role: Public Relation Manager
+Role: Senior Public Relation Manager
 Skills: public speaking, coaching, motivator
 
 
